@@ -45,5 +45,5 @@ Since 2020 I have worked in IT support, computer and electronics project managem
 - Telegram: [t.me/yeahyea_ali](https://t.me/yeahyea_ali)
 - WhatsApp: [wa.me/yeahyea_ali](https://wa.me/yeahyea_ali)
 - Instagram: [instagram.com/yeahyea_ali](https://instagram.com/yeahyea_ali)
-- Facebook: [facebook.com/id.YeahyeaAli](https://facebook.com/id.YeahyeaAli)
+- Facebook: [facebook.com/yeahyea.ali.bd](https://facebook.com/yeahyea.ali.bd)
 - Email: [ali@yeahyea.com](mailto:ali@yeahyea.com)
